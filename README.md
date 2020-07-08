@@ -1,2 +1,2 @@
 # orzu
-Mani orzularm olamiga xush kelbisz (faqat yigit ucun 🤣❤️) 
+Mani orzularm olamiga xush kelbisz (faqat yigitlar ucun 🤣❤️) 
